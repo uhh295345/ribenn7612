@@ -19,4 +19,4 @@
 
 总而言之，国产无遮挡资源在现代网络环境下不仅易于获取，而且观看体验也更加出色。选择正确的平台，既能畅享高清大尺度内容，又可远离潜在风险，让娱乐体验更加愉快。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/uhh295345/ribenn7612)</span>
